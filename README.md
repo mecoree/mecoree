@@ -4,4 +4,5 @@
 [![divs1.png](https://i.postimg.cc/Y9s4wVkd/divs1.png)](https://postimg.cc/wyDxXw1N)
 [![lomedy.png](https://i.postimg.cc/htk7XNdn/lomedy.png)](https://postimg.cc/MnYG4P53)
 
-## ${\textsf{\color{#533522}wip}}$
+# ♡⃕　﹑ ${\textsf{\color{#533522}A B O U T}}$  ${\textsf{\color{#E5AF43}M E}}$
+
