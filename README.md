@@ -5,7 +5,7 @@
 [![lomedy.png](https://i.postimg.cc/htk7XNdn/lomedy.png)](https://postimg.cc/MnYG4P53)
 
 # ♡⃕　﹑ ${\textsf{\color{#533522}A B O U T}}$  ${\textsf{\color{#E5AF43}M E}}$
-𓏼 𓈒 ˘˘ [![gif.gif](https://i.postimg.cc/gJs5sn1q/gif.gif)](https://postimg.cc/YG4bqqrh) hihii !! my name is citrus >_< i also go by lom n toru , but most of my moots call me cit 4 short ! i am 15 , i am genderfluid , pansexual , n asexual ^^ i also go by any pronouns but i would really appreciate it if u use the pronouns xe / pup but i really dont mind any pronouns at all , so dont feel pressured(?) 2 use those pronouns 4 me !!
+𓏼 𓈒 ˘˘ [![gif.gif](https://i.postimg.cc/gJs5sn1q/gif.gif)](https://postimg.cc/YG4bqqrh) hihii !! my name is citrus >_< i also go by lom n toru , but most of my moots call me cit 4 short ! i'm  15yo , i am also genderfluid , pansexual , n asexual ^^ i also go by any pronouns but i would really appreciate it if u use the pronouns xe / pup but i really dont mind any pronouns at all , so dont feel pressured(?) 2 use xe / pup pronouns 4 me if u aren't comfortable w using it !!
 
 --- ꕤ 𓈒 𓏻 [![gif2.gif](https://i.postimg.cc/x8zfqwsY/gif2.gif)](https://postimg.cc/H8TDhhDP) i loves/likes many things such as: cooking , the color green , mangoes , pickles , matcha latte , tarts , yapping abt random stuff , yogurt , ice cream yogurt(yolé is my fav one) , n my lovely beautiful gf !!
 
